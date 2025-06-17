@@ -1,1 +1,1 @@
-"# WoW-Icons-HD" 
+"High Res WoW-Icons-HD" 
